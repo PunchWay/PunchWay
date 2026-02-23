@@ -30,7 +30,7 @@ Emotions are not weakness — they're direction.
 🎵 &nbsp;**Music** — I don't arrange sounds. I arrange moods.  
 ✍️ &nbsp;**Writing** — Words matter less than what they make you feel.  
 🧩 &nbsp;**Systems** — Finding meaning in chaos gives me peace.  
-💻 &nbsp;**Tech** — Code, electronics, logic — all just building blocks.  
+💻 &nbsp;**Tech** — Code, electronics, logic, usage of ai — all just building blocks.  
 🎭 &nbsp;**Storytelling** — Building characters and ideas isn't a talent. It's a reflex.  
 🤝 &nbsp;**People** — I try to understand before I judge.
 
